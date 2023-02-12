@@ -1,1 +1,1 @@
-# Follow to https://flexwappa.github.io/landing_page/
+# Follow to https://1kurochkin.github.io/landing_page/
